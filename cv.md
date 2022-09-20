@@ -22,4 +22,3 @@ I'm a 35 years old system administrator who is eager to continue my career in Fr
 - ___Belarussian___ - native
 - ___Poalish___ - A1
 - ___English___ - A1
-
